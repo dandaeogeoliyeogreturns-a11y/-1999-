@@ -5,12 +5,10 @@ https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b
 https://videotourl.com/videos/1783205891030-4fe23c83-8a89-4252-a72c-0736ee94a403.mp4
 
 공익채널
-https://videotourl.com/videos/1783227659540-013c061e-2c43-4c02-b65f-a105a1366d9e.mp4
+https://videotourl.com/videos/1783295474035-707d305b-abfa-4003-8b48-5cbeba9f5f58.mp4
 https://videotourl.com/videos/1783223546110-da4d715e-0cca-4740-84aa-2f488774bd67.mp4
-https://videotourl.com/videos/1783227692864-e0a355b5-ac25-46bb-b5fd-fd32e48fa1f7.mp4
 https://videotourl.com/videos/1783223582264-0b0d0122-a850-40e3-990f-432f45d0cbea.mp4
 https://videotourl.com/videos/1783223721068-e95caf91-b4a3-4d8a-9b3f-ef04c2d4b059.mp4
-
 https://videotourl.com/videos/1783293883062-188d221e-e697-466a-a551-868c5df74110.mp4
 
 
@@ -69,5 +67,10 @@ https://preferred-aquamarine-v4leiqib.edgeone.dev/YouCut_20251221-1783144615832.
 https://preferred-aquamarine-v4leiqib.edgeone.dev/YouCut_20260308-1783144597786.mp3
 
 
+
+
+2차
+https://videotourl.com/videos/1783227659540-013c061e-2c43-4c02-b65f-a105a1366d9e.mp4
+https://videotourl.com/videos/1783227692864-e0a355b5-ac25-46bb-b5fd-fd32e48fa1f7.mp4
 
 
