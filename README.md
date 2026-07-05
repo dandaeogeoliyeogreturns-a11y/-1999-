@@ -30,6 +30,8 @@ https://keb01.uzu.kr https://keb02.uzu.kr
 
 https://cdn.kpopping.com/kpics/2026/03/1773918897314-ehb25x-0.jpg
 
+https://mp3tourl.com/videos/1783222859471-ef72d3d7-1a07-4929-9a72-33b18abf2ec0.mp4
+
 https://mp3tourl.com/audio/1783145860259-b9d5467e-fe40-48a7-ae63-6937c0b7730c.mp3
 
 https://mp3tourl.com/audio/1783145898056-695e2041-ae33-4ebf-a920-05c4b452c3f9.mp3
