@@ -55,6 +55,7 @@ https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b
 음악
 https://keb01.uzu.kr https://keb02.uzu.kr
 https://cdn.kpopping.com/kpics/2026/03/1773918897314-ehb25x-0.jpg
+https://cdn.phototourl.com/free/2026-08-24-4d957dfc-6332-4c50-bb27-3a5390ff6556.jpg
 
 https://videotourl.com/videos/1787131678291-55fbe801-fb7c-46ad-af31-508ed69b2298.mp4
 
