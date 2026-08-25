@@ -53,9 +53,8 @@ https://videotourl.com/videos/1787131750219-dd8ca749-cbb7-4ca7-850b-dd04a1a61570
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
 
 음악
-https://keb01.uzu.kr https://keb02.uzu.kr
+https://keb01.uzu.kr https://keb02.uzu.kr https://cdn.phototourl.com/free/2026-08-25-cd646ba9-2eff-439c-819d-9c36e49bf68d.png
 https://cdn.kpopping.com/kpics/2026/03/1773918897314-ehb25x-0.jpg
-https://cdn.phototourl.com/free/2026-08-24-4d957dfc-6332-4c50-bb27-3a5390ff6556.jpg
 
 https://videotourl.com/videos/1787131678291-55fbe801-fb7c-46ad-af31-508ed69b2298.mp4
 
@@ -100,5 +99,6 @@ https://videotourl.com/videos/1783227692864-e0a355b5-ac25-46bb-b5fd-fd32e48fa1f7
 https://videotourl.com/videos/1783295474035-707d305b-abfa-4003-8b48-5cbeba9f5f58.mp4
 https://videotourl.com/videos/1783223721068-e95caf91-b4a3-4d8a-9b3f-ef04c2d4b059.mp4
 https://videotourl.com/videos/1783223546110-da4d715e-0cca-4740-84aa-2f488774bd67.mp4
+https://cdn.phototourl.com/free/2026-08-24-4d957dfc-6332-4c50-bb27-3a5390ff6556.jpg
 
 
