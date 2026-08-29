@@ -53,6 +53,7 @@ https://videotourl.com/videos/1787131750219-dd8ca749-cbb7-4ca7-850b-dd04a1a61570
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
 
 음악
+https://cdn.phototourl.com/free/2026-08-29-5c4e154e-568f-4bc7-ace3-c2dc337ed631.jpg
 https://keb01.uzu.kr https://keb02.uzu.kr https://cdn.phototourl.com/free/2026-08-25-cd646ba9-2eff-439c-819d-9c36e49bf68d.png
 https://cdn.kpopping.com/kpics/2026/03/1773918897314-ehb25x-0.jpg
 
