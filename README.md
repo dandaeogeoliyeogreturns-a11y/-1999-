@@ -37,6 +37,7 @@ https://mp3tourl.com/audio/1783222270160-f74975ff-2afb-4d63-a4c0-4694564f4023.mp
 https://mp3tourl.com/audio/1783222388329-4cf201ef-bdb4-4310-bba9-ae027e8d5f3a.mp3
 https://mp3tourl.com/audio/1783222408778-ecd8567e-81ff-484c-bb03-5e5616663875.mp3
 https://mp3tourl.com/audio/1783222428908-9bda8bb2-48c6-4b78-ac5a-952a996cebe6.mp3
+https://mp3tourl.com/audio/1790403569124-05b845d4-48bf-4799-ad3a-e9ccf8f31eea.mp3
 
 낚시광고
 https://videotourl.com/videos/1783204193935-84fd072a-857e-430f-8c22-5161859e548e.mp4
@@ -44,8 +45,9 @@ https://videotourl.com/videos/1783204193935-84fd072a-857e-430f-8c22-5161859e548e
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
 
 다큐채널
-https://videotourl.com/videos/1783228693005-45dc37af-f425-44d3-8f7e-453678283dd0.mp4
 
+기본
+https://mp3tourl.com/audio/1790402907502-15c348cf-51d0-4294-9e7d-aa4ce18a6cef.mp3
 https://videotourl.com/audio/1783228801729-72a5b7a6-bb04-47c9-8a5e-c29c58a09f9b.mp3
 
 https://videotourl.com/videos/1787131750219-dd8ca749-cbb7-4ca7-850b-dd04a1a61570.mp4
@@ -95,7 +97,8 @@ https://preferred-aquamarine-v4leiqib.edgeone.dev/YouCut_20260125-1783144539559.
 https://preferred-aquamarine-v4leiqib.edgeone.dev/YouCut_20251221-1783144615832.mp3
 https://preferred-aquamarine-v4leiqib.edgeone.dev/YouCut_20260308-1783144597786.mp3
 
-
+다큐 2차
+https://videotourl.com/videos/1783228693005-45dc37af-f425-44d3-8f7e-453678283dd0.mp4
 
 
 2차
