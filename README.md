@@ -43,7 +43,6 @@ https://mp3tourl.com/audio/1783222091861-e7773fc3-877a-45da-be62-a66a66ebe7df.mp
 https://mp3tourl.com/audio/1783222145065-58856fc9-e1bf-4a8b-ab29-c2cfc367956b.mp3
 https://mp3tourl.com/audio/1783222233982-f559e9ca-6e34-4f9e-a7ff-758333a0ba8c.mp3
 https://mp3tourl.com/audio/1783222270160-f74975ff-2afb-4d63-a4c0-4694564f4023.mp3
-https://mp3tourl.com/audio/1783222388329-4cf201ef-bdb4-4310-bba9-ae027e8d5f3a.mp3
 https://mp3tourl.com/audio/1783222408778-ecd8567e-81ff-484c-bb03-5e5616663875.mp3
 https://mp3tourl.com/audio/1783222428908-9bda8bb2-48c6-4b78-ac5a-952a996cebe6.mp3
 https://mp3tourl.com/audio/1790403569124-05b845d4-48bf-4799-ad3a-e9ccf8f31eea.mp3
@@ -131,6 +130,6 @@ https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp
 
 https://cdn.mp4tourl.com/video/free/97723df3-6ba0-4f3a-b4ff-971dc61c0b0e.mp4
 
-
-
+보도 BGM 2차
+https://mp3tourl.com/audio/1783222388329-4cf201ef-bdb4-4310-bba9-ae027e8d5f3a.mp3
 
