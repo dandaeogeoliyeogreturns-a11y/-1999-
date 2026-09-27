@@ -38,7 +38,6 @@ https://stable-pink-fdvfqjxq.edgeone.dev/%ED%95%9C%EA%B5%AD%20BGM%20Screen_R-178
 https://mp3tourl.com/audio/1783221661562-fe5fa297-2e96-47da-8d05-54f534c02441.mp3
 https://mp3tourl.com/audio/1783221733801-08bcca7f-30d2-432f-abc6-9c06c7a1cf19.mp3
 https://mp3tourl.com/audio/1783222013989-10ba6bab-31e8-495a-8b71-6259a3071650.mp3
-https://mp3tourl.com/audio/1783222057820-3fed6459-4513-4d92-808e-eaf9d6036336.mp3
 https://mp3tourl.com/audio/1783222091861-e7773fc3-877a-45da-be62-a66a66ebe7df.mp3
 https://mp3tourl.com/audio/1783222145065-58856fc9-e1bf-4a8b-ab29-c2cfc367956b.mp3
 https://mp3tourl.com/audio/1783222270160-f74975ff-2afb-4d63-a4c0-4694564f4023.mp3
@@ -133,4 +132,4 @@ https://cdn.mp4tourl.com/video/free/97723df3-6ba0-4f3a-b4ff-971dc61c0b0e.mp4
 보도 BGM 2차
 https://mp3tourl.com/audio/1783222388329-4cf201ef-bdb4-4310-bba9-ae027e8d5f3a.mp3
 https://mp3tourl.com/audio/1783222428908-9bda8bb2-48c6-4b78-ac5a-952a996cebe6.mp3
-
+https://mp3tourl.com/audio/1783222057820-3fed6459-4513-4d92-808e-eaf9d6036336.mp3
