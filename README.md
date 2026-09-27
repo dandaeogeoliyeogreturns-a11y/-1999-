@@ -1,4 +1,11 @@
 # -1999-
+
+SCBS 사회방송 1차
+
+https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
+
+https://cdn.mp4tourl.com/video/free/97723df3-6ba0-4f3a-b4ff-971dc61c0b0e.mp4
+
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
 
 지역 방송국프로그램 OP
@@ -54,6 +61,13 @@ https://videotourl.com/videos/1787131750219-dd8ca749-cbb7-4ca7-850b-dd04a1a61570
 
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
 
+SCBS 사회방송 1차
+
+https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
+
+https://cdn.mp4tourl.com/video/free/97723df3-6ba0-4f3a-b4ff-971dc61c0b0e.mp4
+
+
 음악
 https://cdn.phototourl.com/free/2026-08-29-5c4e154e-568f-4bc7-ace3-c2dc337ed631.jpg
 
@@ -108,5 +122,13 @@ https://videotourl.com/videos/1783295474035-707d305b-abfa-4003-8b48-5cbeba9f5f58
 https://videotourl.com/videos/1783223721068-e95caf91-b4a3-4d8a-9b3f-ef04c2d4b059.mp4
 https://videotourl.com/videos/1783223546110-da4d715e-0cca-4740-84aa-2f488774bd67.mp4
 https://cdn.phototourl.com/free/2026-08-24-4d957dfc-6332-4c50-bb27-3a5390ff6556.jpg
+
+SCBS 사회방송 1차
+
+https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
+
+https://cdn.mp4tourl.com/video/free/97723df3-6ba0-4f3a-b4ff-971dc61c0b0e.mp4
+
+
 
 
