@@ -4,8 +4,7 @@ SCBS 사회방송 1차
 
 https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
 
-https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4
-
+https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4 https://videotourl.com/videos/1790589857568-ad9607b8-6139-4a9e-8670-939ff279d4ac.mp4
 
 기본
 
@@ -124,7 +123,7 @@ SCBS 사회방송 1차
 
 https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
 
-https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4
+https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4 https://videotourl.com/videos/1790589857568-ad9607b8-6139-4a9e-8670-939ff279d4ac.mp4
 
 보도 BGM 2차
 https://mp3tourl.com/audio/1783222388329-4cf201ef-bdb4-4310-bba9-ae027e8d5f3a.mp3
