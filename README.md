@@ -14,24 +14,25 @@ https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b
 https://videotourl.com/videos/1783205891030-4fe23c83-8a89-4252-a72c-0736ee94a403.mp4
 
 공익채널 뉴스채널
-https://videotourl.com/videos/1783378862543-703956e1-cac8-4fa5-bf4f-597ae1ebc05d.mp4
+
+https://videotourl.com/videos/1790991103429-a3fde648-3455-4633-8095-f350c8d92304.mp4
+
+https://videotourl.com/videos/1790991128010-fc79c3b2-dabd-461a-89b8-8eef72c1685a.mp4
 
 https://videotourl.com/videos/1783223582264-0b0d0122-a850-40e3-990f-432f45d0cbea.mp4
 
 https://videotourl.com/videos/1783293883062-188d221e-e697-466a-a551-868c5df74110.mp4
 
-https://videotourl.com/videos/1787132078657-87554d99-d3cc-41d2-ac80-683facf73fe8.mp4
-
 https://mp3tourl.com/audio/1784078796910-02015649-5678-4812-b527-6065d21d2d79.mp3
 
-(2차)https://mp3tourl.com/audio/1784078812326-dbbbdd02-d5b5-41f6-a9f0-d59bdb6e16ad.mp3
+
 
 
 
 
 한국 BGM
 
-https://mp3tourl.com/audio/1783221661562-fe5fa297-2e96-47da-8d05-54f534c02441.mp3
+https://mptourl.com/audio/1783221661562-fe5fa297-2e96-47da-8d05-54f534c02441.mp3
 https://mp3tourl.com/audio/1783222013989-10ba6bab-31e8-495a-8b71-6259a3071650.mp3
 https://mp3tourl.com/audio/1783222091861-e7773fc3-877a-45da-be62-a66a66ebe7df.mp3
 https://mp3tourl.com/audio/1783222145065-58856fc9-e1bf-4a8b-ab29-c2cfc367956b.mp3
@@ -132,6 +133,8 @@ SCBS 사회방송 1차
 https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
 
 https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4 https://videotourl.com/videos/1790589857568-ad9607b8-6139-4a9e-8670-939ff279d4ac.mp4
+
+https://videotourl.com/videos/1783378862543-703956e1-cac8-4fa5-bf4f-597ae1ebc05d.mp4 https://videotourl.com/videos/1787132078657-87554d99-d3cc-41d2-ac80-683facf73fe8.mp4 (2차)https://mp3tourl.com/audio/1784078812326-dbbbdd02-d5b5-41f6-a9f0-d59bdb6e16ad.mp3
 
 보도 BGM 2차
 https://mp3tourl.com/audio/1783222388329-4cf201ef-bdb4-4310-bba9-ae027e8d5f3a.mp3
