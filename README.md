@@ -57,9 +57,12 @@ https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b
 
 SCBS 사회방송
 
+
 https://mp3tourl.com/audio/1790763862280-03f85928-2bf3-43b6-98ed-f9426ae0c2be.mp3
 
 https://mp3tourl.com/audio/1791510790604-e9ceba08-67fe-4778-a478-9aa42d634f0a.mp3
+
+https://mp3tourl.com/audio/1791512130437-a2a0d5db-662f-45dd-a218-0c1c34dbb9a7.mp3
 
 https://mp3tourl.com/audio/1790402907502-15c348cf-51d0-4294-9e7d-aa4ce18a6cef.mp3
 
