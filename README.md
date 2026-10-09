@@ -15,6 +15,8 @@ https://videotourl.com/videos/1783205891030-4fe23c83-8a89-4252-a72c-0736ee94a403
 
 공익채널 뉴스채널
 
+https://mp3tourl.com/audio/1791510153532-2cc6719c-3e72-4d73-9716-53da7e09ae3c.mp3
+
 https://videotourl.com/videos/1790991103429-a3fde648-3455-4633-8095-f350c8d92304.mp4
 
 https://videotourl.com/videos/1790991128010-fc79c3b2-dabd-461a-89b8-8eef72c1685a.mp4
