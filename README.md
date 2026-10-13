@@ -30,21 +30,20 @@ https://mp3tourl.com/audio/1784078796910-02015649-5678-4812-b527-6065d21d2d79.mp
 
 
 
-
-
 한국 BGM
 
-https://mp3tourl.com/audio/1783221661562-fe5fa297-2e96-47da-8d05-54f534c02441.mp3
+
+https://mp3tourl.com/audio/1791888308820-c2a6494e-2705-4066-b219-2005abf96fc7.mp3
 https://mp3tourl.com/audio/1783222013989-10ba6bab-31e8-495a-8b71-6259a3071650.mp3
-https://mp3tourl.com/audio/1783222091861-e7773fc3-877a-45da-be62-a66a66ebe7df.mp3
 https://mp3tourl.com/audio/1783222145065-58856fc9-e1bf-4a8b-ab29-c2cfc367956b.mp3
 https://mp3tourl.com/audio/1783222270160-f74975ff-2afb-4d63-a4c0-4694564f4023.mp3
 https://mp3tourl.com/audio/1783222408778-ecd8567e-81ff-484c-bb03-5e5616663875.mp3
 https://mp3tourl.com/audio/1790403569124-05b845d4-48bf-4799-ad3a-e9ccf8f31eea.mp3
 https://mp3tourl.com/audio/1790762590009-c191fc33-888f-4556-a3ea-df278d5ad44a.mp3
-https://mp3tourl.com/audio/1790762649575-aca0b0b7-4078-44c5-91c6-037c8cb8fbf6.mp3
 
-https://mp3tourl.com/audio/1783222233982-f559e9ca-6e34-4f9e-a7ff-758333a0ba8c.mp3
+
+
+https://mp3tourl.com/audio/1783222233982-f559e9ca-6e34-4f9e-a7ff-758333a0ba8c.mp3 https://mp3tourl.com/audio/1783221661562-fe5fa297-2e96-47da-8d05-54f534c02441.mp3 https://mp3tourl.com/audio/1790762649575-aca0b0b7-4078-44c5-91c6-037c8cb8fbf6.mp3 https://mp3tourl.com/audio/1783222091861-e7773fc3-877a-45da-be62-a66a66ebe7df.mp3
 
 낚시광고
 https://videotourl.com/videos/1783204193935-84fd072a-857e-430f-8c22-5161859e548e.mp4
@@ -57,10 +56,6 @@ https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b
 
 SCBS 사회방송
 
-https://mp3tourl.com/audio/1791512284154-b9a3fc42-9f17-4e2d-b121-833f4942939d.mp3
-
-https://mp3tourl.com/audio/1790763862280-03f85928-2bf3-43b6-98ed-f9426ae0c2be.mp3
-
 https://mp3tourl.com/audio/1791510790604-e9ceba08-67fe-4778-a478-9aa42d634f0a.mp3
 
 https://mp3tourl.com/audio/1791512130437-a2a0d5db-662f-45dd-a218-0c1c34dbb9a7.mp3
@@ -68,6 +63,10 @@ https://mp3tourl.com/audio/1791512130437-a2a0d5db-662f-45dd-a218-0c1c34dbb9a7.mp
 https://mp3tourl.com/audio/1790402907502-15c348cf-51d0-4294-9e7d-aa4ce18a6cef.mp3
 
 https://videotourl.com/audio/1783228801729-72a5b7a6-bb04-47c9-8a5e-c29c58a09f9b.mp3
+
+https://mp3tourl.com/audio/1791888604084-12caad9d-7968-448c-9a42-a7193d901beb.mp3
+
+
 
 
 
@@ -78,6 +77,10 @@ https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b
 SCBS 사회방송 1차
 
 https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
+
+https://mp3tourl.com/audio/1791512284154-b9a3fc42-9f17-4e2d-b121-833f4942939d.mp3
+
+https://mp3tourl.com/audio/1790763862280-03f85928-2bf3-43b6-98ed-f9426ae0c2be.mp3
 
 https://cdn.mp4tourl.com/video/free/97723df3-6ba0-4f3a-b4ff-971dc61c0b0e.mp4
 
