@@ -2,6 +2,9 @@
 
 SCBS 사회방송 1차
 
+https://videotourl.com/videos/1792754289566-df095c81-ed3c-4be4-aeb7-855d81703576.mp4
+
+
 https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp3 
 
 https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4 https://videotourl.com/videos/1790589857568-ad9607b8-6139-4a9e-8670-939ff279d4ac.mp4
