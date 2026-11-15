@@ -60,6 +60,10 @@ https://videotourl.com/videos/1783204193935-84fd072a-857e-430f-8c22-5161859e548e
 
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
 
+방송의 날
+
+https://mp3tourl.com/audio/1794734001429-868380c9-8d82-4347-be14-b6fdf64cd4b8.mp3
+
 다큐채널
 
 기본
@@ -78,6 +82,7 @@ https://mp3tourl.com/audio/1794402331170-51a50d21-fbf5-4c5b-b968-92d8534b029b.mp
 
 https://mp3tourl.com/audio/1792205901230-7625d961-1ab1-4cf7-aa7c-24ba149e771d.mp3
 
+https://mp3tourl.com/audio/1794733965447-5ebbae2f-69c8-4390-8388-9701875a71ea.mp3
 
 
 
