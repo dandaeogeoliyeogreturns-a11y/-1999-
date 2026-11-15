@@ -9,6 +9,10 @@ https://mp3tourl.com/audio/1790481139047-b611221e-4fee-41ce-8923-778f5cc10947.mp
 
 https://videotourl.com/videos/1790585832168-716b929e-5ecb-4a62-8ce6-1a4bb3fe2325.mp4 https://videotourl.com/videos/1790589857568-ad9607b8-6139-4a9e-8670-939ff279d4ac.mp4
 
+SCBS 프라임/쎄듀TV
+
+https://videotourl.com/videos/1794780370413-8ce4f809-b1c0-4b37-8291-5ce5f3f8bab4.mp4
+
 기본
 
 https://videotourl.com/videos/1783229232939-59b78877-33e7-4db2-afb6-c43152fc998b.mp4
